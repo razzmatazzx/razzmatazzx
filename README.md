@@ -7,3 +7,4 @@
 
 ![ezgif-16e6b333167f63](https://github.com/user-attachments/assets/70be9bc1-ee43-480c-a8cf-72aafe1b55ac)
 <br>^^^ So nice u see her twice ^^^
+<br><br>I dont read abouts so If I break ur DNI #Sorry #NotReally #IDontCare 

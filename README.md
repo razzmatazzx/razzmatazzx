@@ -2,9 +2,5 @@
 <br>
 <h1>made you look jackass hahahaha</h1>
 
-2004 I play 18+ server and I assume everyone else is an adult as well 
-<br><br>VVV my beautiful wife VVV<br>
-
-![ezgif-16e6b333167f63](https://github.com/user-attachments/assets/70be9bc1-ee43-480c-a8cf-72aafe1b55ac)
-<br>^^^ So nice u see her twice ^^^
-<br><br>I dont read abouts so If I break ur DNI #Sorry #NotReally #IDontCare 
+Im an adult(2004) woman
+I play 18+ I assume anyone i talk to is an adult as well and if they're not then GTFO the adult server 

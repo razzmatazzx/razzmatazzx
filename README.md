@@ -3,4 +3,4 @@
 <h1>made you look jackass hahahaha</h1>
 
 Im an adult(2004) woman
-I play 18+ I assume anyone i talk to is an adult as well and if they're not then GTFO the adult server 
+I play 18+ I assume anyone i talk to is an adult as well and if they're not then GTFO the adult server <br><br>I DONT read yo shit if you have a DNI up guess what I didn't read it. #Sorry #Notreally #BlockMe

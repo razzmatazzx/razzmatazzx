@@ -1,4 +1,4 @@
-<a href="https://store.steampowered.com/app/459080/YIIK_A_Postmodern_RPG/"><h1>go play my favorite game</h1></a>
+<h1><a href="https://store.steampowered.com/app/459080/YIIK_A_Postmodern_RPG/">go play my favorite game</a></h1>
 ![cirno-touhou](https://github.com/user-attachments/assets/a47b5316-4bcc-4a65-9bab-f5833ce1778f)
 <br>
 <h1>made you look jackass hahahaha</h1>

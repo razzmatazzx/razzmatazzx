@@ -4,4 +4,6 @@
 <h1>made you look jackass hahahaha</h1>
 
 Im an adult(2004) woman
-I play 18+ & I assume anyone I talk to on there is also an adult. If you're not GTFO the 18+ server<br><br>I have not read your DNI I will not read your DNI man up and hide me yourself
+I play 18+ & I assume anyone I talk to on there is also an adult. If you're not GTFO the 18+ server<br><br>I have not read your DNI I will not read your DNI man up and hide me yourself<br>
+<img src="https://i.postimg.cc/hPgQwxhV/image.png" width="200">
+<br>this is my waifu. i will not share. get your own waifu -_-
